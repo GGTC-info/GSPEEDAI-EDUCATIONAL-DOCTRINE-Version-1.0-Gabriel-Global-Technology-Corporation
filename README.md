@@ -1,0 +1,1 @@
+# GSPEEDAI-EDUCATIONAL-DOCTRINE-Version-1.0-Gabriel-Global-Technology-Corporation
